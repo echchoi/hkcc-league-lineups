@@ -4,66 +4,47 @@
 
 ---
 
-🟢 WEEK 27  – LINE-UP OUT! 🟢
+🟢 WEEK 28  – LINE-UP OUT! 🟢
 
 Hi team,
 
-Week 26 was a tough one: A team fell 2-6 at home to HKFC, B team went down 6-2 on the road at CLP, and C team enjoyed a well-earned rest week. Two defeats and a bye — but one shared story: this club sticks together and bounces back. Here are the lineups for the week ahead:
+Week 27 gave us one of each: B produced the result of the weekend with a commanding 7–1 win over HKPBC-B at home, C dug in for a battling 4–4 draw with LCN-A, and A came up short 6–2 away at HKFC-B. A win, a draw and a defeat — but one shared story: all three squads are still very much alive in their divisions. Here are the lineups for the week ahead:
 
-***Team A***
-
-Game ref: M27015
-
-Opponent: HKFC-B
-
-10 Oct (Sat) 14:30 @ HKFC Indoor
-
+Team A
+Game ref: M28012
+Opponent: KCC-B
+17 Oct (Sat) 19:00 @ Home (Rink 4/5/6)
 ————————————————————
+1. Eric, Alan L, Pete, ______
+2. Brandon, Jason, Manesh, Andrew M
+3. Ivan, Danny, Alan Olsson, ______
+_* Pete, Alan L, Alan O, Danny please bring 3 woods_
 
-1. Eric, Pete, Alan L, Manesh
-
-2. Brandon, Jason, Danny, Andrew M
-
-3. MT, Ivan, Kenneth W, Alan Olsson
-
-***Team B***
-
-Game ref: M27042
-
-Opponent: HKPBC-B
-
-10 Oct (Sat) 19:00 @ Home (Rink 3/4/5)
-
+Team B
+Game ref: M28044
+Opponent: HKFC-E
+17 Oct (Sat) 19:00 @ Home (Rink 7/8/9)
 ————————————————————
-
-1. Leo Li, Guy, Kenneth L, Johnathan
-
+1. Leo Li, Ricky, Kenneth L, Johnathan
 2. Alan C, Gordon, Michael, Mark
+3. Guy, Texas, Billy, Simon
 
-3. Nicholas, Ricky, Billy, Simon
-
-*Team C*
-
-Game ref: M27092
-
-Opponent: LCN-A
-
-10 Oct (Sat) 19:00 @ Home (Rink 6/7/8)
-
+Team C
+Game ref: M28095
+Opponent: AYFP-B
+18 Oct (Sun) 15:00 @ TCS
 ————————————————————
+1. James, Charlie, Stephen, Leo Ao
+2. Johnny, Wayne, Henry, Andy
+3. Martin, Geoff, Anthony, ______
+_* Geoff, Anthony please bring 3 woods_
 
-- Ian, Charlie, Stephen, Brendan
+A boys – 4th in Division 1 and 4 points clear of the chasing pack — a position worth defending. KCC-B sit 8th and come to our green, so this is the weekend to bank maximum points and make the top four ours.
 
-- James, Wayne, HM, Henry
+B boys – that 7–1 was your statement performance of the season. HKFC-E are bottom of the table, so no complacency - carry the form, take the points, and keep climbing out of the mid-table pack.
 
-- Martin, Johnny, Geoff, Anthony
+C boys – a hard-earned draw kept the season ticking. AYFP-B are bottom of Division 9 and you travel to TCS on Sunday — a golden chance to turn territory into points and build real momentum.
 
-A boys – back-to-back defeats sting, especially at home, but you're still within touching distance of the top four at the last count, a win away to 7th-placed HKFC-B keeps 4th firmly in our hands.  Two weeks to reset, one Saturday to turn it around. Bring the intensity from the first end and remind Division 1 what HKCC is about.
+All squads: tea served at 18:30 for the home boys, safe travels to C on Sunday. Let's make Week 28 a big one.
 
-B boys – the 8-0 two weeks ago showed your ceiling; the 6-2 at CLP was a setback, not a verdict. That Division 4 table is packed tight — one good weekend and you're climbing again. Take the lessons from CLP and make them count.
-
-C boys – fresh legs and a clean slate after the bye. Sometimes the best result is a reset, and now it's time to attack the run-in. Let's see that fighting spirit from the first bowl.
-
-All squads: tea for the home boys, safe travels for the away crew. Let's make Week 27 a points-packed Saturday.
-
-See you on the green. 💪
+See you on the green. 💪See you on the green. 💪
