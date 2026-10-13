@@ -47,4 +47,4 @@ C boys – a hard-earned draw kept the season ticking. AYFP-B are bottom of Divi
 
 All squads: tea served at 18:30 for the home boys, safe travels to C on Sunday. Let's make Week 28 a big one.
 
-See you on the green. 💪See you on the green. 💪
+See you on the green. 💪
