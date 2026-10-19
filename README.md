@@ -2,7 +2,7 @@
 
 All HKCC lawn bowls league **line-up posts** (team selections), exported from Apple Notes.
 
-_28 posts · exported 2026-10-12_
+_29 posts · exported 2026-10-19_
 
 Each post is a Markdown file in [`lineups/`](lineups/), with the original posting date.
 
@@ -36,3 +36,4 @@ Each post is a Markdown file in [`lineups/`](lineups/), with the original postin
 | 26 | 🟢 WEEK 25  – LINE-UP OUT! 🟢 | 2026-05-04 | [week-25-line-up-out.md](lineups/week-25-line-up-out.md) |
 | 27 | 🟢 WEEK 26  – LINE-UP OUT! 🟢 | 2026-05-04 | [week-26-line-up-out.md](lineups/week-26-line-up-out.md) |
 | 28 | 🟢 WEEK 27  – LINE-UP OUT! 🟢 | 2026-05-04 | [week-27-line-up-out.md](lineups/week-27-line-up-out.md) |
+| 29 | 🟢 WEEK 30 – LINE-UP OUT! 🟢 | 2026-10-19 | [week-30-line-up-out.md](lineups/week-30-line-up-out.md) |
